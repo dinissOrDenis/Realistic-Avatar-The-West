@@ -1,1 +1,1 @@
-avatare clasice cu grafica noua
+avataruri clasice cu grafica noua
